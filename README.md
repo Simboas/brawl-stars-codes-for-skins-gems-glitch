@@ -1,2 +1,5 @@
-# brawl-stars-codes-for-skins-gems-glitch
-Brawl Stars codes for skins and gems glitch 2022 legit working full details
+# Brawl Stars codes for skins and gems glitch 2022 legit working
+
+Brawl Stars codes for skins and gems glitch 2022 legit working full details - Another advantage of swing and ball holding attack is to be able to see where your shot will fall. Remember that it takes time to start the attack and the bullet hits the target, and remember that fighting star players generally like to walk around on the map. This means that assuming the enemy will hold their ground, it is not a good idea to fire at them; Instead, what you should do is lead and "read", or in other words, lead your shots and read your opponents by predicting their movements. This strategy is most suitable for use in "smash and rob" and "rob" game modes. Because you can be sure that your opponent will aim at the crystal in the former mode and the safe in the latter mode, and you will know where they are going; This can be regarded as the "practice" mode of the "guidance and reading" technology we mentioned above. If someone is in hot pursuit, you can also use this method.
+
+<a href="https://t.co/AuUBYLo6nQ">try this</a>
